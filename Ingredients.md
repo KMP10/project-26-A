@@ -1,0 +1,1 @@
+water and a packet of maggi noodles which contains ready made noodles and its masala
